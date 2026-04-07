@@ -1,0 +1,1 @@
+# IEEE-Trevecca-Student-Chapter
